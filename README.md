@@ -72,6 +72,4 @@
 
 ---  
 
-## 📞 **Connect with Me**  
-
 💀 *"Security is not a product, it's a process. Stay ahead, stay secure!"*
